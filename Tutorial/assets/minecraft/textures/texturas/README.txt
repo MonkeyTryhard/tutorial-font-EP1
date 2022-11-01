@@ -1,0 +1,1 @@
+No puse los archivos png por si había algún problema.
